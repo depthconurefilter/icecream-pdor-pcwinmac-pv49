@@ -1,4 +1,4 @@
-# 
+# رسمي Icecream PDF Editor إضافات لـ Mac OS | توربو Icecream PDF Editor إضافات لـ PC Windows. مع المعالجة الدفعية و مسح الإيصالات — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
